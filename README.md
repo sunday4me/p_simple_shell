@@ -327,7 +327,9 @@ $
 - LinkedIn: [LinkedIn](https://www.linkedin.com/in/sunday-jimoh-1195b8173/)
   
 
-👤 **Akpokighe Ovigwe M. Marvellous**
+👤 **Akpokighe Ovigwe MARVELLOUS**
 
+-  GitHub:     (https://github.com/AkpokigheMarvellous)
+-  LinkedIn:   (https://www.linkedin.com/in/akpokighe-marvellous-o-76b37b1a9/)
 
 
